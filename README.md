@@ -1,5 +1,7 @@
 # Jake Singelais Photography Portfolio
 
+[View my full portfolio and project statement](PORTFOLIO.md)
+
 ## EDUCATION
 **2026** – Bachelor of Arts, Art and Entrepreneurial Studies concentration in Photography, University of Southern Maine
 
