@@ -9,11 +9,3 @@ This series of photographs explores how colors with an intentional composition c
 I got into photography because of individuals who initially say they "hate getting their photograph taken." I naturally fell in love with directing the environment and discovering my own process. I aimed to create images where the subject becomes more comfortable and present in the frame. At first it started with bringing in subjects they cared about and we went from there. With this series I'm going back to my roots and going back to before I had a pre-setup studio. Bringing my own set up to these different settings and creating photographs where the subject is exactly where I want them placed and amplified by the lighting I had envisioned.
 
 Each of my subjects were chosen intentionally. The people in these photographs have pushed me throughout my creative process while I've been living in Maine. From someone who has been my rock back home, to coworkers from my first and second jobs here, to someone who is now the first person I see when I wake up and the last person I see before I go to bed. When I look at each of them, I see a different time in my life since being here. As much as this series is about color, composition, and my growth as an artist, it is also an encapsulation of my collegiate life through these individuals.
-
-## Exported Files
-
-*Images, audio files (mp3), and video files (mp4) will be added here*
-
-## Artist Statement
-
-See Project Statement above.
